@@ -1,3 +1,3 @@
-# List of seminars attented
+# List of Presentations Given
 
 1. 
